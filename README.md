@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="7620049781278412158" data-share-method="host" data-aspect-ratio="1.81818" data-width="100%"><a href="https://tenor.com/view/pink-gif-7620049781278412158">Pink GIF</a>from <a href="https://tenor.com/search/pink-gifs">Pink GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img width="736" height="448" alt="image" src="https://github.com/user-attachments/assets/1ffa8f1f-25d3-4521-a05e-68b37185742f" />
