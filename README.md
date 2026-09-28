@@ -4,7 +4,5 @@
 
 <img width="400" height="50" alt="divider-cutecore" src="https://github.com/user-attachments/assets/c07c66bd-1995-44d0-b761-63a5b45ee5ef" />
 
-<img width="26" height="21" alt="meikoiu-discord-server" src="https://github.com/user-attachments/assets/b3969937-3240-4732-b0a8-5cd2ec07dabf" /> 𝐃𝐍𝚰 ⤵︎
-
-𝘱𝘳𝘰𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘭𝘰𝘭𝘪𝘤𝘰𝘯𝘴, 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯𝘴, 𝘮𝘦𝘯𝘵𝘢𝘭 𝘪𝘭𝘭𝘯𝘦𝘴𝘴 𝘭𝘢𝘳𝘱𝘴, 𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘱𝘳𝘦𝘥𝘢𝘵𝘰𝘳𝘴, 𝘢𝘯𝘥 𝘳𝘢𝘤𝘪𝘴𝘵𝘴 <img width="40" height="40" alt="heart-heart-chase" src="https://github.com/user-attachments/assets/7a3cb1a3-1b98-4e49-bc56-7b0b973012bd" />
+<img width="26" height="21" alt="meikoiu-discord-server" src="https://github.com/user-attachments/assets/b3969937-3240-4732-b0a8-5cd2ec07dabf" /> 𝐃𝐍𝚰 : 𝘱𝘳𝘰𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘭𝘰𝘭𝘪𝘤𝘰𝘯𝘴, 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯𝘴, 𝘮𝘦𝘯𝘵𝘢𝘭 𝘪𝘭𝘭𝘯𝘦𝘴𝘴 𝘭𝘢𝘳𝘱𝘴, 𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘱𝘳𝘦𝘥𝘢𝘵𝘰𝘳𝘴, 𝘢𝘯𝘥 𝘳𝘢𝘤𝘪𝘴𝘵𝘴 <img width="40" height="40" alt="heart-heart-chase" src="https://github.com/user-attachments/assets/7a3cb1a3-1b98-4e49-bc56-7b0b973012bd" />
 
