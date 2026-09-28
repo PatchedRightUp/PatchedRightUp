@@ -1,6 +1,6 @@
 <img width="800" height="100" alt="divider-hello-kitty" src="https://github.com/user-attachments/assets/1b4486e1-a368-4c6f-8d48-bd5bf19e0fa5" />
 
- 𝘏𝘪 𝘩𝘪.ᐟ 𝘐'𝘮 𝘱𝘢𝘵𝘤𝘩𝘦𝘥 / 𝘱𝘢𝘵𝘤𝘩𝘺.ᐟ (♡ˊ͈ ꒳ ˋ͈) ノ 𝘚𝘩𝘦 / 𝘩𝘦𝘳 ノ 𝘐 𝘓𝘖𝘝𝘌 𝘗𝘜𝘋𝘋𝘐𝘕𝘎.ᐟ <img width="50" height="30" alt="nekomimiyu-mii" src="https://github.com/user-attachments/assets/2307d712-af12-45dc-afd4-e745afa37ff5" /> 𝘛𝘩𝘪𝘴 𝘪𝘴 𝘫𝘶𝘴𝘵 𝘢𝘯 𝘢𝘤𝘤𝘰𝘶𝘯𝘵 𝘮𝘢𝘥𝘦 𝘧𝘰𝘳 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢  ଘ(੭ˊᵕˋ)੭ <img width="30" height="40" alt="nekomimiyu-mii (1)" src="https://github.com/user-attachments/assets/6df5d8e9-850b-4aa3-a802-68d1ca9dda14" /> 
+ 𝘏𝘪 𝘩𝘪.ᐟ 𝘐'𝘮 𝘱𝘢𝘵𝘤𝘩𝘦𝘥 / 𝘱𝘢𝘵𝘤𝘩𝘺.ᐟ (♡ˊ͈ ꒳ ˋ͈) ノ 𝘚𝘩𝘦 / 𝘩𝘦𝘳 ノ 𝘐 𝘓𝘖𝘝𝘌 𝘗𝘜𝘋𝘋𝘐𝘕𝘎.ᐟ <img width="50" height="30" alt="nekomimiyu-mii" src="https://github.com/user-attachments/assets/2307d712-af12-45dc-afd4-e745afa37ff5" /> 𝘛𝘩𝘪𝘴 𝘪𝘴 𝘫𝘶𝘴𝘵 𝘢𝘯 𝘢𝘤𝘤𝘰𝘶𝘯𝘵 𝘮𝘢𝘥𝘦 𝘧𝘰𝘳 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢 <img width="30" height="40" alt="nekomimiyu-mii (1)" src="https://github.com/user-attachments/assets/6df5d8e9-850b-4aa3-a802-68d1ca9dda14" /> 
 
 
 <img width="400" height="50" alt="divider-cutecore" src="https://github.com/user-attachments/assets/c07c66bd-1995-44d0-b761-63a5b45ee5ef" /> <img width="400" height="50" alt="divider-cutecore" src="https://github.com/user-attachments/assets/c07c66bd-1995-44d0-b761-63a5b45ee5ef" /> 
@@ -9,7 +9,7 @@
 
 <img width="26" height="21" alt="meikoiu-discord-server" src="https://github.com/user-attachments/assets/b3969937-3240-4732-b0a8-5cd2ec07dabf" /> 𝘉𝘭𝘶𝘥𝘨𝘦𝘰𝘯𝘪𝘯𝘨 𝘢𝘯𝘨𝘦𝘭 𝘥𝘰𝘬𝘶𝘳𝘰 𝘤𝘩𝘢𝘯 𝘧𝘢𝘯𝘴 𝘗𝘓𝘌𝘈𝘚𝘌 𝘐𝘕𝘛.ᐟ.ᐟ <img width="39" height="27" alt="nekomimiyu-mii (2)" src="https://github.com/user-attachments/assets/1b1f9882-d819-496a-a458-fa6df52258be" />
 
-<img width="300" height="50" alt="pink-divider-cake" src="https://github.com/user-attachments/assets/d8719d94-9a98-4683-8080-1bf72c72f0ee" /> <img width="300" height="50" alt="pink-divider-cake" src="https://github.com/user-attachments/assets/d8719d94-9a98-4683-8080-1bf72c72f0ee" /> <img width="300" height="50" alt="pink-divider-cake" src="https://github.com/user-attachments/assets/d8719d94-9a98-4683-8080-1bf72c72f0ee" />
+<img width="300" height="50" alt="pink-divider-cake" src="https://github.com/user-attachments/assets/d8719d94-9a98-4683-8080-1bf72c72f0ee" />
 
 <img width="500" height="280" alt="cfa9b5c41bf6317b16262dc6ab410893" src="https://github.com/user-attachments/assets/f6d2f82b-0637-4371-b4d0-befd8486e6cb" />  
 
