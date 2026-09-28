@@ -1,2 +1,2 @@
-<img width="220" height="31" alt="divider-hello-kitty" src="https://github.com/user-attachments/assets/1b4486e1-a368-4c6f-8d48-bd5bf19e0fa5" />
+<img width="440" height="62" alt="divider-hello-kitty" src="https://github.com/user-attachments/assets/1b4486e1-a368-4c6f-8d48-bd5bf19e0fa5" />
 
