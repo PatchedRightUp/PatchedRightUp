@@ -9,6 +9,8 @@
 
 <img width="26" height="21" alt="meikoiu-discord-server" src="https://github.com/user-attachments/assets/b3969937-3240-4732-b0a8-5cd2ec07dabf" /> 𝘉𝘭𝘶𝘥𝘨𝘦𝘰𝘯𝘪𝘯𝘨 𝘢𝘯𝘨𝘦𝘭 𝘥𝘰𝘬𝘶𝘳𝘰 𝘤𝘩𝘢𝘯 𝘧𝘢𝘯𝘴 𝘗𝘓𝘌𝘈𝘚𝘌 𝘐𝘕𝘛.ᐟ.ᐟ <img width="39" height="27" alt="nekomimiyu-mii (2)" src="https://github.com/user-attachments/assets/1b1f9882-d819-496a-a458-fa6df52258be" />
 
+<img width="498" height="62" alt="pink-divider-cake" src="https://github.com/user-attachments/assets/d8719d94-9a98-4683-8080-1bf72c72f0ee" />
+
 
 <img width="500" height="280" alt="cfa9b5c41bf6317b16262dc6ab410893" src="https://github.com/user-attachments/assets/f6d2f82b-0637-4371-b4d0-befd8486e6cb" />  
 
